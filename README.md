@@ -3,7 +3,7 @@
 I’m studying at Moscow Aviation Institute.
 
 - 👀 I’m interested in learning
-- 🔭 I’m currently working on on labs at University in C++ 
+- 🔭 I’m currently working on labs at University in C++ 
 - 📫 How to reach me: You can write me in Telegram 
 - 😄 Pronouns: She/her 
 - ⚡ Fun fact: The Eiffel Tower can be 15 cm taller during the summer due to the expansion of the iron in the heat. 
