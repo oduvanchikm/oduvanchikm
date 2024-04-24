@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oduvanchikm
 - 👀 I’m interested in learning
-- 🌱 I’m currently studing in Moscow Aviation Institute
+- 🌱 I’m currently studing at Moscow Aviation Institute
 - 📫 How to reach me in Telegram
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: The Eiffel Tower can be 15 cm taller during the summer due to the expansion of the iron in the heat.
