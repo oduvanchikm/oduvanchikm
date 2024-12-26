@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Mira 
+### Hi there, I'm Mira 
 #### @oduvanchikm
 I’m studying at Moscow Aviation Institute.
 
